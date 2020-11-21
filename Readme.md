@@ -23,3 +23,6 @@
 
 #### Amber Luzar - Performance Analyst - Bisham
 ##### - slow and steady wins the race :snail:
+
+#### Kyle Goggin - Sport Intelligence - Anywhere
+##### - Patience is most definitely a virtue.
